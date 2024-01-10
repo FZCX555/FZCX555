@@ -1,0 +1,1 @@
+gua gua hanya ingin
